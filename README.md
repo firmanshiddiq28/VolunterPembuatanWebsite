@@ -7,3 +7,4 @@ Volunter, silakan lakukan PR(pull-request) pada berkas ini ya. Silakan gunakan f
 Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Firman Shiddiq Alamsyah, [Instagram](https://instagram.com/firmanshiddiq28?igshid=n14tkt14o6y6).
